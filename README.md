@@ -1,0 +1,2 @@
+# Game-alphasolis.dontcopy
+FUN
